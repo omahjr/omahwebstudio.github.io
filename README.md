@@ -29,7 +29,7 @@ Welcome to my GitHub repository! I am **Omah Favour**, a passionate and skilled 
 
 If you're interested in working with me or want to discuss your project, feel free to reach out! You can contact me via the following:
 
-- **Email:** omahfavour@example.com
+- **Email:** chukwuebukaomah654@gmail.com.com
 - **LinkedIn:** [Your LinkedIn Profile Link]
 - **Portfolio:** [Your Portfolio Link] (Optional)
 
